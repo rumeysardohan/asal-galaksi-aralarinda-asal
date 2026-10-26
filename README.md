@@ -1,0 +1,1 @@
+# asal-galaksi-aralarinda-asal
